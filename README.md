@@ -1,1 +1,1 @@
-# sanjivani college is very good college 
+# Sanjivani university  is a very good  college 
